@@ -2,7 +2,7 @@
 
 <h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 ˹v˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼</h4>
 
-<p align="center"><a href="@it_f24"><img src="https://te.legra.ph/file/a7bf168ee0cd9058d9b8a.jpg" width="400"></a></p>
+<p align="center"><a href="@it_f24"><img src="https://telegra.ph/file/dfd8e3f55e0586bf36cf3.jpg" width="400"></a></p>
 
 
 > ⭐️ Thanks to everyone for using this op ˹v˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼. That is the greatest pleasure we have !
