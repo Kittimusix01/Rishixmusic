@@ -1,11 +1,11 @@
-<h1 align="center"><b>[⚡] ˹𝚁𝚒𝚜𝚑𝚒˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼ [⚡]</b></h1>
+<h1 align="center"><b>[⚡] ˹v˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼ [⚡]</b></h1>
 
-<h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 ˹𝚁𝚒𝚜𝚑𝚒˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼</h4>
+<h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 ˹v˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼</h4>
 
-<p align="center"><a href="https://t.me/x_x0Rishi"><img src="https://te.legra.ph/file/a7bf168ee0cd9058d9b8a.jpg" width="400"></a></p>
+<p align="center"><a href="@it_f24"><img src="https://te.legra.ph/file/a7bf168ee0cd9058d9b8a.jpg" width="400"></a></p>
 
 
-> ⭐️ Thanks to everyone for using this op ˹𝚁𝚒𝚜𝚑𝚒˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼. That is the greatest pleasure we have !
+> ⭐️ Thanks to everyone for using this op ˹v˼ ✘ ˹𝙼𝚞𝚜𝚒𝚌˼. That is the greatest pleasure we have !
 
 
 # ᴅᴇᴘʟᴏʏᴍᴇɴᴛ
